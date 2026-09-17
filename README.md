@@ -1,2 +1,2 @@
 # zu-igamimi
-egundo deber de cajas
+segundo deber de cajas
